@@ -1,1 +1,2 @@
-My first readme
+God please help me to live a good life and also give me the wisdom that will help me throught my Life .
+Give me the grace that will help me to be consistent in whatever I am learning and also protect my elder brother thst will be coming back tomorrow, be his driver and conductor send down your angels to guid hime sothat he will come back saftely , pls also protect him whenever he will be traveling out of Nigeria be his pilo shiel their aroplane with your prercious blood of Jesus christ our lord Amen.
